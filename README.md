@@ -1,2 +1,2 @@
 # wannatie.com
-Coming...Soon...
+Wannatie is a furniture and interior design initiative.
